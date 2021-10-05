@@ -1,7 +1,7 @@
 
   # 🐱‍👤 Salve!!
 
-## 🐱‍💻🐱‍💻 Voltando!!
+## 🐱‍💻🐱‍💻 Estudando!!!
 
  <div>
   <a href="https://github.com/cleciosousa">
